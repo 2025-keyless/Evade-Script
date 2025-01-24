@@ -1,0 +1,2 @@
+# Evade-Script
+Evade Script Pastebin | MOBILE/PC | AUTO FARM EXP, AUTO RESPAWN, AUTO REVIVE, ESP, MORE
